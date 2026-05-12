@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft flip bot with vip nft flip bot | flip-strategies + volume-analysis. Featuring flip-strategies and volume-analysis, it's the best choice for automated NFT
 
 
 
